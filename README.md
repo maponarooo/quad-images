@@ -8,3 +8,5 @@
 ![Quad-new2](https://github.com/user-attachments/assets/969f76e2-33a1-49fe-897a-d874c2f5ffde)
 ![Quad-new2(투명)](https://github.com/user-attachments/assets/d76ee758-bea2-4380-b101-5a2af2634e0c)
 ![Quad-new1](https://github.com/user-attachments/assets/4930a241-3db9-4ae5-8f50-4ad345d15e52)
+![저작권(non-GPS자율주행드론교육용SD-Card이미지)_20240820-생년삭제](https://github.com/user-attachments/assets/7312cf17-7b9c-4d91-b1ec-ec855251d8a1)
+![교육교재_저작권등록증(20240827)_생년삭제](https://github.com/user-attachments/assets/abaff9ff-1627-4073-919f-aecba0fc96d4)
